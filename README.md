@@ -28,4 +28,4 @@
 
 
 **Will be updated with new patches to mod**
-![maxresdefault](https://user-images.githubusercontent.com/107517248/178294719-26d02818-737e-4900-bee2-af666d515efe.jpg)
+![image](https://user-images.githubusercontent.com/107517248/178385532-bf18e0b3-fbf3-4b98-a557-c628cb1446a6.png)
