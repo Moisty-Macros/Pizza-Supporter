@@ -1,6 +1,6 @@
 # Pizza-Supporter
 
-# **Cracked Supporter Features Included with Pizza Client Supporter Membership** 
+# **FREE Supporter Features Included with Pizza Client Supporter Membership** 
 
 
 **Current Features**                                              
